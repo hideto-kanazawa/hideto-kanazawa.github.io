@@ -1,0 +1,1 @@
+# hideto-kanazawa.github.io
